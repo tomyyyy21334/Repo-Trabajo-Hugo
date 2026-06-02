@@ -1,39 +1,71 @@
-Historia que tú hiciste
-Historia por hacer
-Porque nadie resiste
-Tus ganas de vencer
 
-Ya salen las estrellas
-Mi viejo Chamartín
-De lejos y de cerca
-Nos traes hasta aquí
+All the pretty girls in the foreground of my mind
+I thought I'd done enough, but they keep moving the line
+I thought I found the antidote this time
+I thought I found the antidote this time
 
-Llevo tu camiseta
-Pegada al corazón
-Los días que tú juegas
-Son todo lo que soy
+All the nights I spend fighting bad thoughts in my room
+Feeling so alone, might as well be on the moon
+I thought I found the antidote with you
+I thought I found the antidote with you
 
-Ya corre La Saeta
-Ya ataca mi Madrid
-Soy lucha, soy belleza
-El grito que aprendí
+But my head is full of poison
+And my heart is full of doubt
+I got toxins in my bloodstream
+You tried hard to suck them out
+And it feels like medication
+And it's good for me, I'm sure
+But it don't matter how your love feels anymore
+It'll never be the cure
+It'll never be the cure
 
-Madrid, Madrid, Madrid
-¡Hala Madrid!
-Y nada más, y nada más
-¡Hala Madrid!
+Used to play a game in my head when I'd date a guy
+Tally up the girls that he fucked till I start to cry
+I thought I found the antidote this time
+I thought I found the antidote this time
 
-Historia que tú hiciste
-Historia por hacer
-Porque nadie resiste
-Tus ganas de vencer
+But I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
 
-Ya salen las estrellas
-Mi viejo Chamartín
-De lejos y de cerca
-Nos traes hasta aquí
+And my head is full of poison
+And my heart is full of doubt
+I got toxins in my bloodstream
+You tried hard to suck them out
+And it feels like medication
+And it's good for me, I'm sure
+But it don't matter how your love feels anymore
+It'll never be the cure
+It'll never be the cure
 
-Madrid, Madrid, Madrid
-¡Hala Madrid!
-Y nada más, y nada más
-¡Hala Madrid!# Quiero KEKE
+Oh, 'cause baby, I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+I'm unraveled
+
+Why can't you come stitch me up?
+Why can't it ever be enough?
+Why can't you come stitch me up?
+Why can't it ever be enough?
+It's not enough
+
+Oh, because my head is full of poison
+And my heart is full of doubt
+I got toxins in my bloodstream
+You tried so hard to suck out
+And it feels like medication
+And it's good for me, I'm sure
+But it don't matter how your love feels anymore
+It'll never be the cure
+It'll never be the cure
+It'll never be Quiero KEKE
